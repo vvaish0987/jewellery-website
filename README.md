@@ -1,1 +1,0 @@
-# jewellery-website
